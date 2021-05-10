@@ -1,1 +1,1 @@
-# Choo yu jin github blog Page
+# Chooyujin's github blog Page
